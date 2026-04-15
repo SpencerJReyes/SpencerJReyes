@@ -1,1 +1,1 @@
-Student at SBCC
+SBCC graduate
